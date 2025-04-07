@@ -1,2 +1,2 @@
-# ccs8-repo
+# a study of happiness
 Like, share, and subscribe to my chanel
